@@ -1,4 +1,4 @@
-**name：Ninja Dash
+**name：Tkoear
 
 email：renzhegame774@outlook.com
 
